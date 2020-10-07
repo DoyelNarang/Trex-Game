@@ -1,1 +1,2 @@
-# Trex-Game
+# Trex-Game 🐲🐲
+Enjoy!!✌🏻
